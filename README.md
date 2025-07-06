@@ -1,2 +1,2 @@
-       UI UX 
-INTERN FULL STACK DEVOLPER
+       CS Student ||MUFIC 
+INTERN Software Engineer
